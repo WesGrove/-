@@ -23,7 +23,7 @@ Learn like this: you are laying down layers of info and building a framework for
 		- [x] Useful Expressions
 	- [x] Characters: Radicals (40) & Numerals 
 	- [x] Comprehensive Pinyin Pronunciation Practice
-(the roadblock i seem to be coming up against here is that I am embarrassed to practice tones and talking out loud. I need to suck it up. OR if that's genuinely impossible, )
+(the roadblock i seem to be coming up against here is that I am embarrassed to practice tones and talking out loud. I need to suck it up. OR if that's genuinely impossible, suck it up anyway as theres no way to learn to speak a language without speaking)
 - [ ] Lesson Refresher 1
 - [ ] LR 2
 - [ ] LR 3
