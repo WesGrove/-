@@ -1,5 +1,5 @@
 What do you want by when?
-- I am a fluent Mandarin speaker and Chinese reader on a native level asap at latest by December 2026
+- I am a fluent Mandarin speaker and Chinese reader on a native level
 
 Why do you want it?
 - Gain international perspective
